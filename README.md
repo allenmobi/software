@@ -1,2 +1,2 @@
 # 艾伦魔拜
-[网址](https://allen.mobi)
+[https://allen.mobi/tools](https://allen.mobi/tools)
